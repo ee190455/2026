@@ -7,3 +7,4 @@ get off the phones and ⛽
 another instance with a 🚓 today...
 thing 1 thing 2
 dentist 5k
+3K THEN 2
