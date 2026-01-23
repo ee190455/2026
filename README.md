@@ -8,3 +8,5 @@ another instance with a 🚓 today...
 thing 1 thing 2
 dentist 5k
 3K THEN 2
+if something happens or a doctor or dentist ever comes at me and flat out wants my downfall i will challenge it
+ty to all who help make this world a better place, and pain is now
