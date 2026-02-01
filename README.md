@@ -14,3 +14,4 @@ MEX
 that idle sounds not good!
 sedationx3
 farms and pools
+i have so many passwords
