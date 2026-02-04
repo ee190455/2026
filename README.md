@@ -1,4 +1,4 @@
-# 2026
+# 2026 help me with EGLD-MEX please
 ❄🧊
 if statements
 15th of this month, all food that we throw i will begin to find anyone that is hungry and begin to feed them until i do not work popeyes. this has to be done! 
